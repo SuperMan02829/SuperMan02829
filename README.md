@@ -1,0 +1,4 @@
+- 👋 Olá meu nome é @SuperMan02829
+- 👀 Eu quero aprender Java e .Lua
+- 🌱 Por enquanto estou aprendendo Python E Dropshipping
+- 📪 Para falar comigo vá no meu discord: @StarLink#8360
